@@ -1,2 +1,2 @@
 ahmet can mercimek
-HR labs
+ labs
