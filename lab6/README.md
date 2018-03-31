@@ -1,1 +1,1 @@
-# lAB 6
+# Ahmet Lab 6
