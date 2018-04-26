@@ -1,2 +1,2 @@
-rabia yasa kostas
-HR labs
+ahmet can mercimek
+ labs
